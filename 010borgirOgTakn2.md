@@ -1,0 +1,5 @@
+## Borgir og tákn. 2
+
+Frá borginni Zirmu koma ferðalangar með sérstakar/mismunandi minningar: blindur blökkumaður sem öskrar í mannþrönginni, brjálæðingur sem ruggar/stendur óstöðugur á handriði/þakbarmi skýjaljúfs, stúlka sem gengur með púmakött í taumi. Í raun eru margir þeirra blindingja sem berja stöfum sínum í gangstéttir Zirmu blökkumenn, í hverjum skýjakljúfi er einhver að brjálast, allir brjálaðir eyða mörgum klukkustundum á þakbörmum, það er enginn pumaköttur sem er ekki alinn upp við duttlunga stelpu. Borgin er óþörf: hún endurtekur sig af því að eitthvað mun koma til með að festast í minninu.
+
+Ég er líka að koma aftur frá Zirmu: minning mín inniheldur loftskip sem fljúga í allar áttir í gluggahæð, götur af búllum/búðum þar sem dregin eru húðflúr á hörund sjómanna, neðanjarðarlestir troðfylltar af akfeitum konum sem þjást af rakanum. Ferðafélagar mínir aftur á móti sverja fyrir að hafa bara séð eitt loftskip sveima yfir turnum borgarinnar, einn húðflúrara raða á bekkinn sinn nálum og bleki og götóttum teikningum, eina kvenfallbyssu viðrandi sig á palli lestarvagns. Minnið er óþarft: það endurtekur merkin svo borgin byrji að vera til.
