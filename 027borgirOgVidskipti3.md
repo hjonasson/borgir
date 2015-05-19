@@ -1,0 +1,9 @@
+## Borgir og viðskipti. 3
+
+Þegar hann kemur inn á það yfirráðasvæði sem hefur Eutrópíu að höfuðborg, sér ferðalangurinn ekki eina borg heldur margar, af svipaðri stærð og ekki ósvipaðar hvor annarri, dreifðar yfir víðfeðma, liðandi sléttu. Eutrópía er ekki ein heldur allar þessar borgir í einu; ein er byggð, hinar eru tómar; og þetta er gert í lotum. Nú segi ég þér hvernig. Daginn sem íbúar Eutrópíu finna eirðarleysið koma yfir sig, og enginn þolir lengur sína iðn, foreldra sína, húsið sitt og götuna sína, skuldirnar, fólkið sem það heilsar og þá sem heilsa á móti, þá ákveður öll byggðin að færa sig í nálæga borg sem bíður þeirra þar, tóm og eins og ný, þar sem hver mun taka upp nýja iðn, aðra konu, sjá annað landslag þegar þeir opna gluggann, eyða kvöldunum við aðrar tómstundir, vini, kjaftasögur.
+
+Þannig endurnýjar líf þeirra sig frá flutningi til flutnings, á milli borga sem hverra útstilling eða halli eða vatnaleiðir eða vindar birtast öðruvísi hvor frá annarri. Verandi þannig að þeirra samfélag er skipulagt án mikils munar á ríkidæmi eða valdi, er afhending á einu hlutverki til annars nánast hnökralaus; fjölbreytni er tryggð af fjölbreytileika skyldnanna, svo að á einu æviskeiði muntu sjaldan snúa aftur að sömu iðn og hafði þegar verið þín.
+
+Þannig endurtekur borgin líf sitt jafnt færandi sig upp og niður á tómu taflborði sínu. Íbúarnir leika eftir sömu senurnar með breyttum leikurum; þeir endurtaka sömu ræðurnar með breytilega blönduðum hreim; opna mismunandi munna í sömu geispum. Ein af öllum borgum í ríkinu, er Eutrópía stöðugt sú sama.
+
+Merkúr, guð þeirra óákveðnu, hvers borg er heilög, bjó til þessa tvíræðu borg.
