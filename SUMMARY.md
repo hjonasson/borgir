@@ -35,7 +35,7 @@
 	* [Borgir og augu. 3](033borgirOgAugu3.md)
 	* [Borgir og nöfn. 2](034borgirOgNofn2.md)
 	* [Borgir og þeir dánu. 1](035borgirOgTheirDanu1.md)
-* [hluti](012borgirnarOsynilegu.md)
+* [hluti](036borgirnarOsynilegu.md)
 	* [Borgir og minni. 5](013borgirOgMinni5.md)
 	* [Borgir og þrár. 4](014borgirOgThrar4.md)
 	* [Borgir og tákn. 3](015borgirOgTakn3.md)
