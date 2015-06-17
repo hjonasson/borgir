@@ -1,0 +1,13 @@
+## Borgirnar áframhaldandi. 3
+
+Á hverju ári á ferðalögum mínum stoppa ég í Prekópíu og fæ gistirými í sama herbergi í sama gistihúsi.
+
+Frá fyrsta skipti hef ég dvalið við að velta fyrir mér landslaginu sem maður sér við að lyfta tjöldunum frá glugganum: skurður, brú, lágur veggur, múspellstré, maísakur, brómberjarunni, hænsnahús, gulur hóll, hvítt ský, trapisulagaður partur af himninum. Ég er viss um að fyrsta skiptið sá ég engan; það var aðeins árið eftir sem, við hreyfingu í laufunum, að ég gat greint kringlótt, flatt andlit sem nagaði á maísstöngli. Ári seinna voru þeir þrír á lágum veggnum og við næstu komu sá ég sex, sitjandi í röð, með hendurnar á hnjánum og nokkur múspellsblóm á diski. Á hverju ári, um leið og ég kem inn í herbergið, lyfti ég gluggatjöldunum og taldi nokkur andlit til: sextán, að meðtöldum þeim niðri í skurðinum; tuttugu og níu, þar af átta sitjandi í trénu; fjörtíu og sjö að frátöldum þeim í hænsnakofanum. Þeim svipar hver til annars, þeir virðast viðkunnalegir, þeir hafa freknur í kinnunum, þeir brosa, sumir með munninn litaðan af brómberjum. Brátt sá ég brúna alla fulla af fígúrum með kringlótt andlit, í keng af því að það var ekki meira rými til þess að athafna sig; þeir átu af áfergju maísstönglana, síðan nöguðu þeir stönglana sjálfa.
+
+Og svona, ár fram af ári hef ég séð hverfa skurðinn, tréð, runnann, vera falið af friðsömum brosum, á milli kringlóttra kinna sem hreyfa sig tyggjandi lauf.
+
+Þú getur ekki ímyndað þér, á eins takmörkuðu rými og þessum maísakri, hve mikið fólk kemst fyrir, sérstaklega ef það er sitjandi með hendurnar utan um hnén, kyrrt. Þeir hljóta að hafa verið langtum fleiri en þeir virtust: hólinn hef ég séð hyljast af æ þéttari mannþröng; en nú þegar þeir á brúnni hafa tekið þann sið að sitja klofvega hver á baki annars get ég ekki lengur séð svo langt.
+
+Þetta ár, loksins, er ég lyfti tjöldunum, rammar glugginn aðeins inn víðáttu af andlitum: frá einu horni í annað, á öllum sviðum og öllum fjarlægðum, sér maður þessi kringlóttu andlit, kyrr, flöt, með vott af brosi, og í miðjunni margar hendur, sem héldu sér í axlir þeirra sem fyrir framan þær voru. Jafnvel himininn er horfinn. Það væri eins gott ef ég kæmi mér burt frá glugganum.
+
+Ekki að það að hreyfingar séu mér auðveldar. Í herberginu mínu var okkur tuttugu og sex komið fyrir: til þess að færa fæturnar þar ég að trufla þá sem sitja á hækjum sér á jörðinni, ég kem mér hjá á meðal hnjáa þeirra sem sitja á kommóðum og olnbogum þeirra sem skiptast á halla sér upp að rúminu: allir mjög vinsamlegir, sem betur fer.

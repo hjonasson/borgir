@@ -1,0 +1,11 @@
+## Borgir og viðskipti. 5
+
+Í Esmeröldu, vatnsborg, gengur net af skurðum og net af götum sem skera hvort annað.
+
+Til þess að fara frá einum stað til annars hefurðu alltaf val um að ferðast fótgangandi eða í bát: og fyrst stysta lína á milli tveggja punkta í Esmeröldu er ekki bein bein lína heldur sikksakk sem greinist í mismunandi flækjur, eru leiðirnar sem opnast fyrir hverjum vegfaranda ekki alltaf tvær heldur margar, og þær aukast enn frekar fyrur þeim sem skipta á milli að ferðast í bát og að ferðast á þurru landi.
+
+Svo íbúum Esmeröldu er bjargað frá leiðindunum við að ferðast á hverjum degi eftir sömu götunum. Og það er ekki allt: net leiðanna er ekki bara á einni hæð heldur ganga þær upp og niður í stigum, göngum, bogalaga brúm, hengibrúm. Blandandi saman mismunandi leiðarbrotum, hækkuðum eða á jörðinni, getur hver íbúi notið nýrrar ferðaáætlunar á hverjum degi til þess að komast á milli sömu staðanna. Venjulegustu og rólegustu líf í Esmeröldu ganga án endurtekninga.
+
+Undir miklum hömlum eru, hér eins og annarsstaðar, leynd líf og ævintýrarík. Kettir Esmeröldu, þjófar, leyndir elskhugar ferðast eftir hærri götum og ósamfelldari, stökkvandi frá einu þaki yfir á annað, lækka sig frá svölum yfir á svalir, fylgandi pípulögnum með fimi loftfimleikamanns. Lægra, hlaupa mýsnar í myrkri ræsisins ein á bakvið skott annarrar ásamt mönnum í svikráðum og smyglurum: þeir gægjast um holræsi og frárennsli, smjúga um smugur og skurði, draga frá einum felustað á annan ostskorpu, forboðinn varning, tunnur af byssupúðri, farandi yfir þéttni borgarinnar gataða af skúmaskotum neðanjarðarganga.
+
+Kort af Esmeröldu þyrfti að innihalda, merkt í mislitu bleki, alla þessa stíga, fasta og fljótandi, finnanlega og falda. Erfiðara er að festa á kortið leiðir hvirflanna, sem skera loftið yfir þökunum, í langa ósýnilega fleygboga með kyrra vængi, steypandi sér að gleypa mýflugu, rísa aftur til þess að strjúka turnspíru, stjórna frá hverjum punkti leiðar sinnar í lofti hverjum punkti í borginni.

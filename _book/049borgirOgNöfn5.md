@@ -1,0 +1,9 @@
+## Borgir og nöfn. 5
+
+Írena er borgin sem maður sér þegar maður hallar sér fram af brún hásléttunnar á þeim tíma þegar kveikt er á ljósunum og í tæru loftinu greinir maður bleikt þorpið þar fyrir neðan sig: þar sem þéttsetnara er af gluggum, þar sem þynnist út í dimmlýstum húsasundum, þar sem safnast upp skuggar garðanna, þar sem rísa turnar með eldum til merkjasendinga; og ef kvöldið er þokukennt tútnar óljós bjarmi eins og mjólkurkenndur svampur við gljúfurfótinn.
+
+Ferðalangar á hásléttunni, hirðar sem reka hjarðir sínar, fuglaveiðimenn sem vaka yfir netunum sínum, munkar sem safna rauðkáli, horfa allir niður og tala um Írenu. Vindurinn ber stundum tónlist frá bumbum og trompetum, snark í hvellhettum á ljósasýningum hátíða; stundum byssuhvelli, sprengingu í duftsprengju á himninum gulum af eldum borgarastríðs. Þeir sem horfa að ofan velta fyrir sér hvað gangi á fyrir neðan, þeir spyrja sig hvort það sér fallegt eða ljótt að finna sig í Íreni þetta kvöld. Ekki að þeir hafi fyrirætlanir um að fara þangað (svo eru vegirnir sem ganga niður dalinn lélegir) en Írena er segull fyrir augu og hugsandi þeirra sem dvelja uppi á hæðinni.
+
+Á þessum punkti býst Kublai Khan við því að Marco tali um Írenu eins og hún er séð neðan frá. En það getur Marco ekki: hver borgin sé sem þeir á hásléttunni kalla Íreni hefur honum ekki tekist að kynnast; það er þó ekki svo mikilvægt: að sjá hana standandi í henni miðri væri önnur borg; Írena er nafn fjarlægrar borgar, og ef maður nálgast hana breytist hún.
+
+Fyrir þeim sem ganga framhjá borg án þess að ganga inn í hana, er önnur en fyrir þeim sem eru þar fastir og komast ekki út; ein er borgin sem maður kemur í fyrsta sinn, önnur sú sem þú ferð frá án þess að koma aftur; hver á skilið mismunandi nafn; kannski ég hafi þegar talað um Írenu undir öðru nafni; kannski ég hafi aðeins talað um Íreni.

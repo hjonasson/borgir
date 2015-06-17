@@ -1,0 +1,7 @@
+## Borgir og nöfn. 3
+
+Lengi var Pirra fyrir mér virki í hlíðum við flóa, með háum gluggum og turnum, innilokuð eins og bikar, í miðjunni torg djúpt eins og brunnur og með brunn í miðjunni. Ég hafði aldrei séð hana. Hún var ein af þeim fjölmörgu borgum sem ég hafði aldrei komið til, sem ég ímyndaði mér út frá nafninu einu: Júfrasía, Ódíle, Margara, Getúllía. Pirra hafði sinn stað á meðal þeirra, frábrugðin þeim öllum, eins skýr í huga mér og allar hinar.
+
+Sá dagur kom að ferðalög mín báru mig til Pirru. Um leið og ég steig fæti var allt sem ég hafði ímyndað mér gleymt; Pirra hafði breyst í það sem Pirra er; og ég trúði því að ég hefði alltaf vitað að hafið sé ekki sýnilegt frá borginni, falið á bakvið hæð af lágri og liðandi strandlengjunni; að göturnar séu langar og beinar; að húsin standi í þröng með millibilum, ekki há, og að þau skiljist að með opnum svæðum fullum af timbri og smiðjum; að vindurinn hreyfi sveifar vatnspumpanna. Frá þeirri stundu hefur nafnið Pirra birt fyrir mér þessa sjón, þetta ljós, þetta suð, þetta loft sem gult ryk svífur um: það er augljóst að það gat ekki þýtt neitt annað en þetta.
+
+Hugur minn heldur áfram að innihalda mikið af borgum sem ég hef hvorki séð né mun sjá, nöfn sem bera með sér ímynd eða brot eða svipmynd af ímyndaðri mynd: Getullia, Ódíle, Júfrasía, Margara. Há borgin yfir flóanum er þar enn, með torgið lokað af ofan í brunni, en ég get ekki kallað hana nafni lengur, né munað hvernig ég gat gefið henni nafn sem þýðir eitthvað allt annað.

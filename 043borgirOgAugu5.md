@@ -1,0 +1,5 @@
+## Borgir og augu. 5
+
+Þegar þú hefur vaðið ána, farið fjallveginn, er maður allt í einu kominn til borgarinnar Moríönnu, með alabasturshliðunum gegnsæjum í sólskininu, kórallasúlur sem halda uppi yfirbyggingum settum úthöggnum snákum, villurnar allar úr gleri eins og fiskabúr þar sem synda skuggar dansara með silfrað hreistur undir medúsu löguðum ljósakrónum. Ef þetta er ekki manns fyrsta ferðalag veit maður að borg sem þessi á sér andstæðu: þú þarft aðeins að ganga í hálfhring og maður hefur sér fyrir sjónum hulið andlit Moríönnu, víðáttu af ryðguðum járnplötum, hærusekki, stingandi naglaspýtur, sótugar pípulagnir, hauga af tunnum, blinda veggi með dofnuðum áletrunum, umgjarðir af baststólum, reipi sem eru góð til einskins annars en að hengja sig úr rotnandi rjáfurbitum.
+
+Frá einum hluta yfir í annan virðist borgin halda áfram, frá réttu sjónarhorni fjölfalda safn sitt af ímyndum: en í staðinn hefur hún enga þykkt, hún samanstendur aðeins af framhlið og andstæðu hennarm eins og pappírsörk, með fígúru á hvorri hlið, sem getur hvorki verið skildar að né séð hvor aðra.
